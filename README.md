@@ -1,0 +1,1 @@
+This project will make me do a revision of thing i've covered in html,and it is a good opportunity for me to practice more of what i've been studying
